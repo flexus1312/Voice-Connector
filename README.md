@@ -5,3 +5,7 @@ It puts your account in the sound you specify and no one can remove that account
 https://dsc.gg/flexusdev
 
 ❤
+
+
+**DONATE:**
+Bitcoin: 3AhXNEdN99wbArvxVMqG3ytNBGyXpBKkJf

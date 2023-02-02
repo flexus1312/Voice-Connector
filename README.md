@@ -8,4 +8,4 @@ https://dsc.gg/flexusdev
 
 
 **DONATE:**
-Bitcoin: 3AhXNEdN99wbArvxVMqG3ytNBGyXpBKkJf
+Bitcoin: a
